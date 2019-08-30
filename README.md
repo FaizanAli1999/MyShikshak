@@ -1,1 +1,1 @@
-# MyShikshak
+# MyShikshak-Tutor
